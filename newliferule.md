@@ -5,9 +5,9 @@
 ◦ <b>Dingen Die Je Nog Wel Weet</b> ➥ Als je bent dood verklaard weet je alleen nog waar je werkt en je kent al je vrienden en collega's nog.
 
 ◦ <b>Wanneer Gaat De New Life Rule In</b> ➥ 
-- Als je bent vermoord door een vuurwapen
-- Als je bent doogestoken door een mes
-- Als iemand /me trapt schelden in/kapot heeft gedaan
+- Als je Dodelijk bent vermoord door een vuurwapen
+- Als je Dodelijk bent gestoken door een mes
+- Als iemand /me trapt schedel in/kapot heeft gedaan
 - Als je geen bloed meer in je lichaam hebt
 - Als je geen hartslag meer hebt
 
